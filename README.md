@@ -1,0 +1,1 @@
+# altered-extension-privacy
